@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Geoengineering, AI, Automation**
 
-- 📫 How to reach me **m.salhimanel@gmail.com**
+- 📫 How to reach me **contact@geoautomate.net**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
